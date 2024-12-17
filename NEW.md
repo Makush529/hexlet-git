@@ -1,0 +1,1 @@
+GovnicO doljno govorit gromko
